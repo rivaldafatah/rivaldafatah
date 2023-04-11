@@ -1,4 +1,4 @@
-![ezgif com-resize](https://user-images.githubusercontent.com/54976787/231279428-af5aa79c-d2a3-4489-86a8-bc0b55697abc.gif)
+![aesthetic-discord](https://user-images.githubusercontent.com/54976787/231280417-510089bc-9007-4e31-a595-319af9ed81f3.gif)
 
 
 
