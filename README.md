@@ -1,6 +1,4 @@
-![aesthetic-discord](https://user-images.githubusercontent.com/54976787/231280417-510089bc-9007-4e31-a595-319af9ed81f3.gif)
-
-
+![ezgif com-resize](https://user-images.githubusercontent.com/54976787/231281032-90f8f1f1-e9b3-4eca-a5ec-a399134a54e9.gif)
 
 
 <h1 align="center">Hi 👋, I'm Rivalda Fatah Rachman Hernawan</h1>
